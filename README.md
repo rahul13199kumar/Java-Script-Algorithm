@@ -4,6 +4,7 @@ Add More Java Script Algorithm   (Recommended for beginners)
 
 
 
+![aiG7EX53](https://user-images.githubusercontent.com/55308841/197396279-afadc639-479e-41a5-8e18-337c1225ad26.jpg)
 
 
 
